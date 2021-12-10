@@ -1,2 +1,0 @@
-# V-echno
-Moje 
